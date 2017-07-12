@@ -1,0 +1,1 @@
+a ve b regemler arasindaki regelmlerin cemini hell elemiwem 
